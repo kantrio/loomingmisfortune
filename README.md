@@ -14,8 +14,7 @@ BEN / CAIN . he/him & adhdtistic
 LINKS
 </p >
 
-- [rentry](https://rentry.co/strangledredversion)
-- [pony town info](https://rentry.co/calamity_slice)⠀⠀⠀
+⠀
 - [guestbook](https://tenebrerossosangue.123guestbook.com/)⠀⠀⠀⠀⠀⠀⠀
 ⠀
   
