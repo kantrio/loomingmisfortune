@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-BEN / CAIN . he/him & adhdtistic
+CAIN / BEN. he/him & adhdtistic
 </p >
 
 <p align="center">
